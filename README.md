@@ -1,1 +1,1 @@
-THIS IS THE personal homepage. Thanks to Professor Xie Weidi of Shanghai Jiao Tong University.
+THIS IS THE personal homepage. Thanks to Professor Weidi Xie of Shanghai Jiao Tong University.
